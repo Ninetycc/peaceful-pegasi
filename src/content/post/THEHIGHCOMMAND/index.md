@@ -3,6 +3,7 @@ title: "TIME TRAVEL (IT'S GOING TO BE BIBLICAL)"
 description: "TOP SECRET CIA program called “Scouting The Future” predicted 9-11 attack [Area 51] [Cheyenne Mountain]"
 publishDate: "16 Oct 2025"
 tags: ["THE_HIGH_COMMAND", "timothy", "charles", "holmseth"]
+draft: false
 ---
 
 TIME TRAVEL (IT'S GOING TO BE BIBLICAL)
@@ -44,9 +45,12 @@ Wells said he was sexually mutilated with a knife in a satanic ritual, and used 
 Well said after 1984, Sawyer joined the U.S. Navy and said Sawyer “now pretends to save children from human trafficking [with an organization called] VETS FOR CHILD RESCUE”.
 “I was a V.I.P. young child with a future that would have seen me as a Union Head of Maritime Wharves in Melbourne, Australia,” Wells said.
 “Jeffrey Epstein, hired also under the British Royal Australian Army Command of David John Hurley, where I was flown on private jets in United States of America, to an Island. Onboard was Craig Randall (Sawman) Sawyer, U.S. Marine Corps personnel from Arizona, he was Working for the Corrupt Australia Army Operations,” Wells said.
-READ ALL - - - https://timothycharlesholmseth.com/top-secret-cia-program-called-scouting-the-future-predicted-9-11-attack-area-51-cheyenne-mountain/
+READ ALL - - - 
+
+https://timothycharlesholmseth.com/top-secret-cia-program-called-scouting-the-future-predicted-9-11-attack-area-51-cheyenne-mountain/
 
 
 https://timothycharlesholmseth.com/wake-up-it-goes-deeper-than-you-think-its-gonna-be-biblical-q-3828/
+
 https://odysee.com/@SandraBullockHollywoodNews:a/Wake-Up-(it-goes-DEEPER-than-you-think)-------It's-Gonna-Be-Biblical---Q-3828:7
 
