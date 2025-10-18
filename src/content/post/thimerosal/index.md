@@ -28,21 +28,3 @@ THEY POISONED US FOR 40 YEARS CALLED IT AIDS CANCER AND COVID: https://therealdr
 
 THE TETANUS MYTH AND THE TRUE NATURAL REMEDIES: https://therealdrjudy.com/judy-mikovits-transcripts/f/the-tetanus-myth-and-the-true-natural-remedies-with-subtitles
 
-
-
-
-
-
-
-
-https://old.bitchute.com/video/WxXJ0bdWIO3F/
-
-
-https://timothycharlesholmseth.com/top-secret-cia-program-called-scouting-the-future-predicted-9-11-attack-area-51-cheyenne-mountain/
-
-
-
-
-
-https://odysee.com/@SandraBullockHollywoodNews:a/Wake-Up-(it-goes-DEEPER-than-you-think)-------It's-Gonna-Be-Biblical---Q-3828:7
-
