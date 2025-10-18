@@ -8,7 +8,7 @@ draft: false
 
 Hard evidence that all vaccines are poison. Every single one!
 
-(MERCURY / THIMEROSAL IS IN ALL VACCINES!!!: ../../thimerosal/#mercury )
+(MERCURY / THIMEROSAL IS IN ALL VACCINES!!!: https://rumble.com/v6yoh46-hard-evidence-that-all-vaccines-are-poison.-every-single-one.html )
 
 (MERCURY / THIMEROSAL IS IN ALL VACCINES!!!: https://1934.date/thimerosal/#mercury )
 
