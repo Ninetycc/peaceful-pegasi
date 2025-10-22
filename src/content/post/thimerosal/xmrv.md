@@ -2,7 +2,7 @@
 title: "Anniversary of our XMRV paper"
 description: "October 8 2009 Anniversary of our XMRV paper that destroyed them"
 publishDate: "18 Oct 2025"
-tags: ["vaccines", "XMRV", "poison"]
+tags: ["vaccines", "XMRV", "judy-mikovits"]
 draft: false
 ---
 
